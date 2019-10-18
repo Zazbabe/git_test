@@ -2,4 +2,4 @@
 
 Här landar allt magiskt!
 
-Magic!
+Magic! :-)
